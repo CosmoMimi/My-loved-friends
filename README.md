@@ -7,6 +7,5 @@ This is my good friend **Sultan**
 
 Before Sultan, i had Texas and Firulais at the sane time.
 
-![boxer-dog-looking-curious-21850511](https://user-images.githubusercontent.com/112630668/208299403-b43e9cdc-afd2-4c16-abba-88a7ae576614.jpg)
 ![images](https://user-images.githubusercontent.com/112630668/208299466-a5c19664-0c29-4cd7-a00e-d75c5cbc532e.jpeg)
-<img src="boxer-dog-looking-curious-21850511" alt="boxer-dog-looking-curious-21850511" width="50%"/>
+<img src="https://user-images.githubusercontent.com/112630668/208299403-b43e9cdc-afd2-4c16-abba-88a7ae576614.jpg" alt="Trulli" width="200" height="200">
