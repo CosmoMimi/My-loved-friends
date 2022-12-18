@@ -12,4 +12,7 @@ Before Sultan, i had Texas and Firulais at the sane time.
 After Sultan!
 <img src="https://user-images.githubusercontent.com/112630668/208305934-4dc57434-4a5c-423f-a74b-a9bfd8356f8c.jpg" alt="Trulli" width="200" height="200">
 [ I had Nancy](https://user-images.githubusercontent.com/112630668/208305934-4dc57434-4a5c-423f-a74b-a9bfd8356f8c.jpg)
+
+ As far I remember Morusa was my firts dog
  
+<img src="https://user-images.githubusercontent.com/112630668/208311179-cde7b900-4d1e-4998-80db-ce405a9b9d63.jpg" alt="Trulli" width="200" height="200">
