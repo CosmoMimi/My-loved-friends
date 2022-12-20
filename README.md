@@ -21,3 +21,4 @@ After Sultan!
  
 <img src="https://user-images.githubusercontent.com/112630668/208311179-cde7b900-4d1e-4998-80db-ce405a9b9d63.jpg" alt="Trulli" width="200" height="200">
 maybe i'm forgeting someone
+I have some humans friends too
